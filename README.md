@@ -1,0 +1,2 @@
+# cnfg
+HAMBA ALLAH
